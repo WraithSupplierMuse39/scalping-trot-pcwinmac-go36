@@ -1,4 +1,4 @@
-# 
+# Élite scalping trading bot scripts for Mac OS | Premium scalping trading bot scripts for PC Windows. Featuring trading de contrats à terme and pools de liquidité DEX — optimized for maximum performance.
 
 
 
